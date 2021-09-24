@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @alabamavalentine
+- 👀 I’m interested in blockchain technology
