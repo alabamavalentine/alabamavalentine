@@ -1,2 +1,3 @@
-- 👋 Hi, I’m @alabamavalentine
-- 👀 I’m interested in blockchain technology
+- Hello I’m @alabamavalentine
+- 👀 just out here learning to code so i don't get screwed
+- Free Spirit :revolving_hearts:
