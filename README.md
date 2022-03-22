@@ -1,3 +1,3 @@
 - Hello I’m @alabamavalentine
-- 👀 just out here learning to code so i don't get screwed
+- 👀 just out here learning to code so i don't get screwed by cowboys
 - Free Spirit :revolving_hearts:
